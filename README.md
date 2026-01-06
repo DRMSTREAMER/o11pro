@@ -41,6 +41,6 @@ https://drmstreamer.com/
 --------------------------------------------------
 
 🔥 Secure your license now
-🔥 When it’s gone — it’s GONE
+🔥 When it's gone — it's GONE
 
 🚀 Join the PRO side of streaming today
